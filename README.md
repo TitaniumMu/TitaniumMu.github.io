@@ -1,1 +1,1 @@
-# imrerist.github.io
+# Imre Rist
